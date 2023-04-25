@@ -2,7 +2,7 @@
 
 Welcome to Eden
 
-People's thoughts, feelings, and needs live here
+People's thoughts, feelings, and dreams live here
 
 Please handle with care
 
